@@ -1,3 +1,3 @@
 See also redandgreen.co.uk
 
-# Thanks for visiting
+# Thanks for visiting.
